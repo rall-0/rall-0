@@ -1,4 +1,4 @@
-- hey👋🏻 I’m rall or you can call just me shun ! i go by He/They ,it's a pleasure to meet you 🤘🏻
+- hey👋🏻 I’m rall or you can call just me shun ! it's a pleasure to meet you 🤘🏻
 - i'm a first year multimedia dev and a freelance artist so please take it easy on me😖
 
 
